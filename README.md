@@ -95,7 +95,7 @@
 ![](https://plasticdino.neocities.org/blinkie/fishie.gif)
 *ᶦ ᵈᵒ ⁿᵒᵗ ᵒʷⁿ ᵃⁿʸ ᵒᶠ ᵗʰᵉˢᵉ ᵇˡᶦⁿᵏᶦᵉˢ
 
-![](https://paleking.carrd.co/assets/images/gallery12/a834ddfe.png?v26071698921061) ![](https://files.catbox.moe/rygutg.png)
+![](https://paleking.carrd.co/assets/images/gallery12/a834ddfe.png?v26071698921061) ![](https://files.catbox.moe/5zsuie.png)
 
 ![](https://64.media.tumblr.com/dff3253787c7160bb0fcf10e0792e984/d19bdf2725dc9464-71/s1280x1920/0ba7e402c8a22f5abe36864eb9dd00f0dc5ef02c.gifv)
 
