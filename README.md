@@ -90,6 +90,11 @@
 ![](https://gifcity.carrd.co/assets/images/gallery23/e4b11c42.gif?v=dc8076d6)
 ![](https://plasticdino.neocities.org/blinkie/KyPTz4p.gif)
 
+![](https://i.imgur.com/FvSLVNv.png)![](https://i.imgur.com/Pgv53XB.png)
 
 ![](https://plasticdino.neocities.org/blinkie/fishie.gif)
 *ᶦ ᵈᵒ ⁿᵒᵗ ᵒʷⁿ ᵃⁿʸ ᵒᶠ ᵗʰᵉˢᵉ ᵇˡᶦⁿᵏᶦᵉˢ
+
+![](https://paleking.carrd.co/assets/images/gallery12/a834ddfe.png?v26071698921061)
+
+![](https://64.media.tumblr.com/bf8a1fc5fedefd7e183d9d4ed1cc40f2/54da408cf1886a95-52/s500x750/7aa601694e1c19ce4a3f7dab555690c0c91eff44.gifv)
