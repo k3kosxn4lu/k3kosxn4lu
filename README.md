@@ -95,6 +95,11 @@
 ![](https://plasticdino.neocities.org/blinkie/fishie.gif)
 *ᶦ ᵈᵒ ⁿᵒᵗ ᵒʷⁿ ᵃⁿʸ ᵒᶠ ᵗʰᵉˢᵉ ᵇˡᶦⁿᵏᶦᵉˢ
 
-![](https://paleking.carrd.co/assets/images/gallery12/a834ddfe.png?v26071698921061)
+![](https://paleking.carrd.co/assets/images/gallery12/a834ddfe.png?v26071698921061) ![](https://files.catbox.moe/rygutg.png)
 
-![](https://64.media.tumblr.com/bf8a1fc5fedefd7e183d9d4ed1cc40f2/54da408cf1886a95-52/s500x750/7aa601694e1c19ce4a3f7dab555690c0c91eff44.gifv)
+![](https://64.media.tumblr.com/dff3253787c7160bb0fcf10e0792e984/d19bdf2725dc9464-71/s1280x1920/0ba7e402c8a22f5abe36864eb9dd00f0dc5ef02c.gifv)
+
+![](https://64.media.tumblr.com/bf8a1fc5fedefd7e183d9d4ed1cc40f2/54da408cf1886a95-52/s500x750/7aa601694e1c19ce4a3f7dab555690c0c91eff44.gifv) ![](https://camo.githubusercontent.com/c8ea3914e8054e219487e4ba0b16c7de113dfd223262bcd30568db5adaa446ea/68747470733a2f2f626c696e6b69652d6e65742e6e656f6369746965732e6f72672f626c696e6b6965732f426c696e6b696573322f7434742e676966) 
+
+![](https://64.media.tumblr.com/dff3253787c7160bb0fcf10e0792e984/d19bdf2725dc9464-71/s1280x1920/0ba7e402c8a22f5abe36864eb9dd00f0dc5ef02c.gifv)
+
